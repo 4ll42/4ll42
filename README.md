@@ -14,7 +14,7 @@ eu ouvindo ele🎶🎧
 
  alem do meu otimo gosto musical🙄, gosto mto d gatos, quando morar sozinho vou ter no minimo 10, atualmente tenho 2
 
-⛈️trovão⛈️                                                              🐾teu🐾
+⛈️trovão⛈️                                                              🐾teo🐾
 
 
  ![4451830a-6660-4942-a06f-672bfa54a430 (2)](https://github.com/user-attachments/assets/7b3e0aa2-7dc8-434d-8b44-bee15c040dc2)
